@@ -3,4 +3,4 @@ Shpongle
 
 Hello Anthroponoses, 
 
-Listen to shpongle and yeat your mushrooms.
+Listen to shpongle and eat your mushrooms.
